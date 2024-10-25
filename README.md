@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @QuQuShKa1205
+- 👀 I’m interested in minecraft server DEV
+- ⚡ Fun fact: I love kitties
